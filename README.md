@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... everything
 - 🌱 I’m currently learning ... everything illegal
 - 💞️ I’m looking to collaborate on ...botnets, cracking tools or anything illegal to fuck up the world rulers and also if you are russian we will be best buddies lol
-- 📫 How to reach me ...instagram:4479k.k
+- 📫 How to reach me ...127.0.0.1
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
